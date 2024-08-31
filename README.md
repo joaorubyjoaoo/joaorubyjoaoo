@@ -9,4 +9,4 @@
 - ☘️ Continuar apredendo e me desafiando cada dia mais. 
 - ⌛ Expandir minhas habilidades 
 - 📉 Vamos Conectar. 
-- 📳
+- 📳 https://linktr.ee/Joaorubyjoao
